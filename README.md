@@ -1,2 +1,0 @@
-# otrasmaneras2026
-
